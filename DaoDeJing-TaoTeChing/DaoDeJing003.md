@@ -15,7 +15,7 @@ The people will not be anxious if they are not troubled by their needs and desir
 
 是以圣人之治，虚其心，实其腹，弱其志，强其骨；
 
-Therefore, the saints shall rule to let people be humbled in heart, be full in stomachs, be weak for desires (the original word means will), and be strong in spirits (the original word means bones).
+Therefore, the saints shall rule to let people be humbled in hearts, be full in stomachs, be weak for desires (the original word means will), and be strong in spirits (the original word means bones).
 
 常使民无知、无欲，使夫智者不敢为也。
 

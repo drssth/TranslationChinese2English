@@ -22,4 +22,4 @@ Create but not possess; do but not rely; achieve but not take.
 
 夫唯弗居，是以不去。  
 
-If only we do not take; we shall make our solid stand and never lose.  
+If only we do not take; we shall make our solid standing and never lose.  
